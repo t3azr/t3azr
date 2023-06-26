@@ -1,5 +1,5 @@
 - ⋆ ˚｡⋆୨୧˚ hi, im t3azr !
-- ✧˚ · . interested in general software engineering and cybersecurtity
+- ✧˚ · . interested in software engineering and cybersecurtity
 - ˏˋ°•*⁀➷ currently studying computer science 
 - ˚₊· ͟͟͞͞➳♡ no collaborations atm  . .
 - *ੈ✩‧₊˚ don't reach me !!
